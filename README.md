@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Sibdok
 - 👀 I’m interested in programming
-- 🌱 I’m currently studying at Yandex Practicum
+- 👨‍🎓 I am a graduate of Yandex Practicum
